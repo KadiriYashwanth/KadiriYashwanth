@@ -12,7 +12,7 @@
   
   📫 Reach me at Gmail kadiriyashwanth1122@gmail.com
   
-  🔗 Connect with me on [LinkedIn](https://www.linkedin.com/public-profile/settings?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_self_edit_contact-info%3BjK%2BcXCkXS9WAgp9V5g0E4w%3D%3D)
+  🔗 Connect with me on [LinkedIn](https://www.linkedin.com/in/kadiriyashwanth?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BjRNr2UtQR%2FiBDKSUmnExgQ%3D%3D)
   
   ❤️ Passionate about continuous learning and growth, I'm excited about the endless opportunities to expand my knowledge and skills in 
   the realm of data analytics.
