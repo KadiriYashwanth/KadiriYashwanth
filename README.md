@@ -7,7 +7,8 @@
  Power BI for impactful data visualization. I also excel in data collection, cleaning, analysis, and visualization, utilizing tools
  like Power Query to streamline workflows and enhance data accuracy.
  
-  I'm always eager to discuss SQL and Power BI, sharing insights and knowledge to foster learning and growth in the data community.
+  💬I'm always eager to discuss SQL and Power BI, sharing insights and knowledge to foster learning and growth in the data community.
+  
   📚 Let's connect and explore the endless possibilities in the world of data analytics!
   
   📫 Reach me at Gmail kadiriyashwanth1122@gmail.com
