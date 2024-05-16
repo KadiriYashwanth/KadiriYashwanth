@@ -11,7 +11,7 @@
   
   📚 Let's connect and explore the endless possibilities in the world of data analytics!
   
-  📫 Reach me at Gmail kadiriyashwanth1122@gmail.com
+  📫 Reach me at Email kadiriyashwanth1122@gmail.com
   
   🔗 Connect with me on [LinkedIn](https://www.linkedin.com/in/kadiriyashwanth?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BjRNr2UtQR%2FiBDKSUmnExgQ%3D%3D)
   
